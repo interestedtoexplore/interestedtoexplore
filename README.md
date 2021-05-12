@@ -1,0 +1,3 @@
+interestedtoexplore
+startedfresh
+lazynotuseless
